@@ -8,3 +8,4 @@ Plan the next step – set goals that feel manageable and check how you’re doi
 About Kaam Ki KhojThe idea behind Kaam Ki Khoj is to make looking for jobs a bit more straightforward. It gives job seekers one place to start from instead of jumping around everywhere.Whether you’re just beginning a career, thinking about switching roles, or simply exploring different paths, a more structured approach can help you decide things a little more clearly.Explore the PlatformYou can visit the official site to learn more:
 
 Kaam Ki Khoj — Explore Career Opportunities
+https://kaamkikhoj.com/
